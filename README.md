@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @JRP12
 - 👀 I’m interested in Computing, Software Engineering and Cybersecurity
 - 🌱 I’m currently studying Maths, Physics and Computing @ A-Level
-- 📚 Please reach out to me if you have anything that can improve my skills - I think I need it!
+- 📚 Please reach out to me if you have anything that can improve my skills - I need it!
